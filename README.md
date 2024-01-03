@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **apoorva.sr525@gmail.com**
 
-- ⚡ Fun fact **Food is my remedy, says my therapist**
+- ⚡ Fun fact **Work hard, snack often**
 
 
 <h3 align="left">Languages and Tools:</h3>
