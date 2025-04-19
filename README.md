@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Computer Architecture**
 
-- 📫 How to reach me **apoorva.sr525@gmail.com**
+- 📫 How to reach me **apoorvasr255@gmail.com**
 
 - ⚡ **Work hard, snack often**
 
